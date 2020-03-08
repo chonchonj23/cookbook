@@ -4,6 +4,26 @@ This is the repo for the Skillshare class Git &amp; Github for Visual Learners.
 
 ## Marc Nischan
 
+
+### OREGANO BREADS
+
+INGREDIENTS
+
+- 250 grams (1 3/4 cups) all-purpose flour
+- 150 ml (2/3 cup) water
+- 1 teaspoon salt
+- 3 tablespoons oregano
+
+#### Instructions
+
+Place the flour, water and salt in a glass bowl and knead it well with your hands. Add the oregano and knead until the oregano are totally involved in the dough.
+Sprinkle a table with a little flour. Divide the dough in 10 balls and flatten each one with a rolling pin.
+Heat a grill pan and when is hot, grill the breads on both sides until golden slightly.
+Serve the breads with butter.
+
+
+
+
 ### Tortilla soup
 
 - Some canola and/or olive oil
